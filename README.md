@@ -8,10 +8,7 @@ https://user-images.githubusercontent.com/101265675/173671604-bc72e17b-a896-4c21
 
 
 
-
-
-https://user-images.githubusercontent.com/101265675/173672946-6e71d4e5-388a-4091-a71a-252f2377a9e5.mov
-
+![ezgif com-gif-maker](https://user-images.githubusercontent.com/101265675/173673390-f2615660-393f-428b-b3df-a4bc4bf4c733.gif)
 
 
 
